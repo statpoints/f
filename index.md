@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Cultivate, contentment.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+[![STATPOINTS](https://blogger.googleusercontent.com/img/a/AVvXsEgHSYm5u7CWvgH7nDegGV81ed7j_p8Zy8cLXexQD82IPaq8gEp2WH825iEfQuURYQ-M9ygJS7nwBHri_OukqBord8IcA3E7SzdyR2N4ez8-ScAQRV3d6tGzyw4LIUstkJ-QoVk5sKYZtuxURr16aUVNTukB5uWAedfTp0U2TtRVolv37qiztETqaQa_=w800){: style="width:100%;"}]
