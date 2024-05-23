@@ -4,4 +4,4 @@ https://blogger.googleusercontent.com/img/a/AVvXsEgHSYm5u7CWvgH7nDegGV81ed7j_p8Z
 
 
 
-[statlogo](/img/logo1.png)
+![statlogo](/img/logo1.png)
